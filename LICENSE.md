@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Radiancenopray.github.io/liquidity-sot-pcwinmac-ma38/ ) |
  |---------------------|----------------------:|
 
 
