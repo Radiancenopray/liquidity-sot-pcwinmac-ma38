@@ -1,4 +1,4 @@
-# 
+# Official liquidity sniper bot templates for Mac OS | Secure liquidity sniper bot templates for PC Windows. Featuring gas price optimization and rate limiting — optimized for maximum performance on every platform.
 
 
 
